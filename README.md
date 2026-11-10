@@ -4,7 +4,6 @@ A 7,500-word gothic noir novella generated 100% by AI via top-down dramaturgical
 ------------
 『Stet the Blue-Black Stain』
 
-
 Pinched between the tips of my tweezers, a piece of No. 5 lead type is, as ever, heavy enough to blanch the pad of a man’s thumb, and cold to the bone.
 Knowing that a two-millimeter square of metal has been alloyed with antimony and tin does nothing to redeem the fingertips of the poor bastard who has to line up hundreds of them inside a wooden chase every single day. Once June passes its midpoint, the low corrugated zinc roof of the print shop takes a relentless beating from the tsuyu rains from morning till night; no matter how hard the exhaust fans spin, the volatilized fumes of the kerosene solvent used to wash the rollers hang low and stagnant over the concrete floor. Breathing that oily air, I pick out the errors in other people’s sentences and swap them for the proper type. That was the life I had chosen—a life that was supposed to spare me from ever hurting a soul.
 “Shitara, we good to pull the third galley proofs?”
