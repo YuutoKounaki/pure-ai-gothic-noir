@@ -5,8 +5,11 @@ A 7,500-word gothic noir novella generated 100% by AI via top-down dramaturgical
 『Stet the Blue-Black Stain』
 
 Pinched between the tips of my tweezers, a piece of No. 5 lead type is, as ever, heavy enough to blanch the pad of a man’s thumb, and cold to the bone.
+
 Knowing that a two-millimeter square of metal has been alloyed with antimony and tin does nothing to redeem the fingertips of the poor bastard who has to line up hundreds of them inside a wooden chase every single day. Once June passes its midpoint, the low corrugated zinc roof of the print shop takes a relentless beating from the tsuyu rains from morning till night; no matter how hard the exhaust fans spin, the volatilized fumes of the kerosene solvent used to wash the rollers hang low and stagnant over the concrete floor. Breathing that oily air, I pick out the errors in other people’s sentences and swap them for the proper type. That was the life I had chosen—a life that was supposed to spare me from ever hurting a soul.
+
 “Shitara, we good to pull the third galley proofs?”
+
 A voice called out from in front of the guillotine cutter in the back, and I lifted my eyes from the rough newsprint on my desk.
 The freshly pulled galley sheet still held a faint dampness of ink. Shifting my grip on my red pen, I inscribed the proofreader’s marks into the narrow margins between the lines, one by one: dele, and stet. To strike out, or to let stand. Words on paper, if you ask me, ought to be handled with nothing more than that sort of dry bureaucracy. Compared to the days when I used to play at writing fiction myself—swinging around words too big for my own spine and exhausting everyone within reach entirely on my own initiative—this trade leaves the water impossibly still. All I had to do was stare down at the crescent of black ink settled permanently into the seam of my cuticle, impervious to any amount of scrubbing with soap, and tell myself that a stain this size required no apologies to anyone.
 The knock on the thin wooden door of my apartment came past nine that night.
