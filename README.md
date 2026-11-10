@@ -3,6 +3,14 @@ A 7,500-word gothic noir novella generated 100% by AI via top-down dramaturgical
 
 ------------
 
+— Empirical Log of Noir Prose Dynamics via One-Pass Generation
+(Engine: Gemini / Argon | 100% Autonomously Generated, Constrained Only by the Given Theme / Minor typographical errors corrected autonomously by AI)
+Architecture: Powered by In-Context Custom VM "Siegrude"
+Author / Architect: Japanese Author
+*Assigned Theme: "Literary Decadence"
+
+------------
+
 『Stet the Blue-Black Stain』
 
 Pinched between the tips of my tweezers, a piece of No. 5 lead type is, as ever, heavy enough to blanch the pad of a man’s thumb, and cold to the bone.
